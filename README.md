@@ -1,3 +1,4 @@
+
 # DuoPlus 怎么样？DuoPlus 介绍与测评
 
 ## DuoPlus 介绍
@@ -18,7 +19,7 @@ DuoPlus 云手机的核心优势在于**高仿真度**、**高效管理**和**�
 
 ## DuoPlus 官网地址
 
-DuoPlus 官网: [https://www.duoplus.cn](https://www.duoplus.cn)
+DuoPlus 官网: [https://www.duoplus.cn/](https://www.duoplus.cn/share/tmTLZS)
 
 ## DuoPlus 优惠码
 
@@ -29,7 +30,7 @@ DuoPlus 官网: [https://www.duoplus.cn](https://www.duoplus.cn)
 - **年终特惠**：最高可享受低至3.5折的超值优惠
 - **推荐返现**：成功推荐好友购买可获得每月10%的订阅套餐费返佣
 
-[点击查看 DuoPlus 官网最新优惠活动](https://www.duoplus.cn)
+[点击查看 DuoPlus 官网最新优惠活动](https://www.duoplus.cn/share/tmTLZS)
 
 ## DuoPlus 优惠活动
 
@@ -69,5 +70,4 @@ DuoPlus特别适合以下业务场景：
 
 基于功能完整性、性能稳定性、价格合理性和用户反馈，DuoPlus在云手机服务领域表现优秀。平台操作简单、资源丰富、价格合理，是当前云手机市场中值得推荐的平台之一。
 
-更多 DuoPlus 用户评价与详细测评: [点击查看](https://www.duoplus.cn)
-
+更多 DuoPlus 用户评价与详细测评: [点击查看](https://www.duoplus.cn/share/tmTLZS)
